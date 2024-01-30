@@ -1,11 +1,3 @@
-VLAD
-PASHA
-KSYUSHA 
-NIKITA
-
-
-
-
 
 
 
