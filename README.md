@@ -3,9 +3,7 @@
 
 
 
-
-
-
+![avatar](https://github.com/Nikiitanskiy/BANANCHIKI/assets/158164451/a1566413-6f73-458a-b055-53822ec62cc3)
 
 
 
