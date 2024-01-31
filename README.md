@@ -7,6 +7,7 @@
 
 
 
+![GitHub-logo](https://github.com/Nikiitanskiy/BANANCHIKI/assets/158164451/949cdf76-1592-49b2-ae3b-512cb03ea0f6)
 
 
 
